@@ -1,2 +1,2 @@
-# Namisa-R-Aphane
+# Namisa Aphane
 Namisa R Aphane
